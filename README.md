@@ -1,1 +1,1 @@
-# New
+I am still a bit confused when it comes to navigating sites like this especially when having to create things. I wanted to make sure I am doing it correct and learning at the same time, but it can be tough. I have learned more about internal computer parts and hopefully more about coding and how things work. I am going to mess around with GitHub and see what I can create for the fun of it!
